@@ -14,3 +14,9 @@
 <p align="center">
     <img width="200" src="https://i.postimg.cc/J41sQWMF/IMG-20250907-192759.jpg" alt="zam">
 </p>
+<p align="center">
+<a href="https://rentry.co/seraphiel_here">ext</a>
+</p>
+<p align="center">
+    <img width="200" src="https://i.postimg.cc/bN1jX1Cm/Untitled2059-20250908203241.png" alt="zam">
+</p>
