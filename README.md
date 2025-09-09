@@ -2,11 +2,11 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=PRIINCEZAM&color=E9A13F&label=‎🜲‎++++&style=plastic)
 [![Untitled2057-20250907231825.png](https://i.postimg.cc/Y0xhwdf8/Untitled2057-20250907231825.png)](https://postimg.cc/30dKXCqD)
 <p align="center">
-    <img width="200" src="https://i.postimg.cc/Mp8SVVVC/Untitled2060-20250909042501.png" alt="zam">
+    <img width="200" src="https://i.postimg.cc/SspWPkV9/Untitled2060-20250909161936.png" alt="zam">
 </p>
 
 <p align="center">
-    <img width="200" src="https://i.postimg.cc/HWZ0rtDL/Untitled2060-20250909042745.png" alt="zam">
+    <img width="200" src="https://i.postimg.cc/zBXfvQGM/Untitled2060-20250909171045.png" alt="zam">
 </p>
 ‎  
 <p align="center">
